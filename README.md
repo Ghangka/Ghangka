@@ -33,10 +33,3 @@
 ## 📫 Contact
 
 Feel free to reach out via email: ghangka.s@gmail.com!
-
-
----
-
-> “Code, travel, and keep learning.”
-
-Thanks for visiting my profile!
