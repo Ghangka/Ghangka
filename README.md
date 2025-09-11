@@ -20,4 +20,4 @@
 
 ## 📫 Contact
 
-Feel free to reach out via email: ghangka.s@gmail.com!
+Feel free to reach out via email: ghangka.s@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/ghangka/)!
